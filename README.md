@@ -1,1 +1,0 @@
-# User_Guide_CoPHI
